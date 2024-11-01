@@ -1,6 +1,7 @@
 =======================================
 # Anastasiia Magutina
 =======================================
+![cv photo](https://ih1.redbubble.net/image.2939668225.5458/raf,360x360,075,t,fafafa:ca443f4786.u1.jpg)
 
 ### Contacts
 
