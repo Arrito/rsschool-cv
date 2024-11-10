@@ -1,12 +1,11 @@
 =======================================
-# Anastasiia Magutina
+# Anastasiia
 =======================================
 ![cv photo](https://ih1.redbubble.net/image.2939668225.5458/raf,360x360,075,t,fafafa:ca443f4786.u1.jpg)
 
 ### Contacts
 
 * Email: arianalovelace43@gmail.com
-* Telegram: @magsia
 * Discord: anastasiia_53924
 
 ### Summary
