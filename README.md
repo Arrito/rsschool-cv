@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Arrito.github.io/rsschool-cv/
